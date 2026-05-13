@@ -1,4 +1,4 @@
-# 
+# updated nft flip bot | mint-detection + snipe-list-management offers the most advanced nft flip bot, with mint-detection and snipe-list-management. Ideal for professional NFT
 
 
 
